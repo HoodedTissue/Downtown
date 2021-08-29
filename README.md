@@ -9,5 +9,5 @@ Background Image: [ Use Wallpaper Engine for Animation](https://www.reddit.com/r
 
 PFP: [ Hu Tao](https://twitter.com/teayupi/status/1366757860953128964/photo/1)
 
-![alt text](https://files.catbox.moe/ga1m7b.PNG)
+![alt text](https://files.catbox.moe/paiet7.PNG)
 
